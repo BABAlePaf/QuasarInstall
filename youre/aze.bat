@@ -1,0 +1,14 @@
+start oo.nktm
+start youre.mp4
+start oui.vbs
+start image.jpg
+start miaou.vbs
+start image.jpg
+start image.jpg
+start image.jpg
+start image.jpg
+start image.jpg
+start image.jpg
+start image.jpg
+start image.jpg
+start image.jpg
